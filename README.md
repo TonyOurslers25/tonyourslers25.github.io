@@ -1,0 +1,5 @@
+- [https://www.youtube.com/@TonyOurslers25](https://www.youtube.com/@TonyOurslers25)
+- [https://x.com/TonyOurslers25](https://x.com/TonyOurslers25)
+- [https://www.reddit.com/user/TonyOurslers25/](https://www.reddit.com/user/TonyOurslers25/)
+- [https://medium.com/@TonyOurslers25](https://medium.com/@TonyOurslers25)
+- [https://tonyourslers25.quora.com/](https://tonyourslers25.quora.com/)
